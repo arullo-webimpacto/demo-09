@@ -7,3 +7,4 @@
 6. Tratar de investigar que trama el Flash Reverso
 7. El nuevo suepr poder de Abraham
 8. Abraham despierta a Nicolas
+10. Carlos resucita
